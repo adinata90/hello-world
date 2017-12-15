@@ -1,3 +1,12 @@
 # hello-world
 testing
-this is blue
+this i
+whay is everyting is blue?
+any how
+
+
+
+
+
+
+n\ ~bold~
